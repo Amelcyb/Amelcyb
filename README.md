@@ -13,3 +13,4 @@
 - 📫 How to reach me: amel_al_bazi@yahoo.co.uk
 - 😄 Pronouns: Him/His
 - ⚡ Fun fact: Food is irresistible making weight loss a challenge :-)
+![myCSLogo](https://github.com/user-attachments/assets/17c23c79-8068-47fd-a64a-db4f5dede556)
